@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there...Lembre-se, eu sou melhor que você em tudo 👋
 
 <!--
 **Wenderson-Peixoto/Wenderson-Peixoto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
